@@ -2,7 +2,4 @@
 
 ### Contact 💬
 
-Feel free to reach me at
-
-1. Discord `savi2w`
-2. Email `savi2w@icloud.com`
+Feel free to send me a message in Discord `savi2w` or `savi2w@icloud.com` 🦊
